@@ -1,1 +1,0 @@
-# tgu-gd.github.io
